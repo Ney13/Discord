@@ -1,2 +1,1 @@
-# Discord
-Yo les gens !
+Salut c'coco de Pernaut
